@@ -1,1 +1,0 @@
-# kape-tankulan-gino
